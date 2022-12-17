@@ -1,4 +1,4 @@
-### Front end developer | www.hannesrasmussen.com
+### Software Developer | www.hannesrasmussen.com
 
 
 
