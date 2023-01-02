@@ -1,4 +1,4 @@
-### Software Developer | www.hannesrasmussen.com
+### Developer | www.hannesrasmussen.com
 
 
 
