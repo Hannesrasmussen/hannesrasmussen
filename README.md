@@ -1,4 +1,4 @@
-### Developer | www.hannesrasmussen.com
+### Web / Front-end Developer | www.hannesrasmussen.com
 
 
 
