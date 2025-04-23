@@ -1,1 +1,1 @@
-Developer with a crippling addictioné to capers and olives.
+Developer with a crippling addiction to capers and olives.
